@@ -7,8 +7,9 @@ This page is dedicated exclusively to the Electronics subgroup, where we regular
 We appreciate you following us on social media:
 
 📸 IG: [ximbalek](https://www.instagram.com/ximbalek/)
+📼 TT: [ximbalek](https://www.tiktok.com/@ximbalek)
 
-
+Ignore the cringe videos; we don't make them, except for one. You can guess which one it is.
 <!--
 
 **Here are some ideas to get you started:**
